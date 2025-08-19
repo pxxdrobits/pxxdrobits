@@ -17,7 +17,7 @@
 ### Sobre mim
 
 - Meu nome é **João** (mais conhecido como **pxxdrobits**)  
-- Tenho **15 anos** (04 de Novembro)  
+- Tenho **17 anos** (10 de Outubro)  
 - Brasileiro  
 - **ASD - nível 1**  • **MBTI: ISTP**  
 - Às vezes posso parecer estranho (às vezes é proposital)
